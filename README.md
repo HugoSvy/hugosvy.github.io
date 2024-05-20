@@ -16,7 +16,7 @@ Je vous contacte car votre entreprise propose des postes à pourvoir, et je suis
 
 Je suis quelqu'un de très motivé, aimant avoir des libertés dans mes choix de projets, et j'apprécie de trouver des idées et de les réaliser. Ma candidature peut paraître brouillon, mais je serais ravi de vous en dire plus lors d'un entretien en visioconférence.
 
-Veuillez trouver en pièces jointes mon CV ainsi que les dates d'alternance. Mon mail fait office de lettre de motivation, car je trouvais cela redondant.
+Veuillez trouver en pièces jointes mon CV ainsi que les dates d'alternance.
 
 Je vous remercie par avance pour l’attention que vous porterez à ma candidature.
 
